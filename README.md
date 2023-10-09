@@ -1,5 +1,3 @@
-<h1 align="center">Hello 👋, I'm Shubham Atkal</h1>
-
 - 📫 How to reach me **shubhamatkal333@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
