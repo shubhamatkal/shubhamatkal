@@ -1,5 +1,5 @@
 <h3 align="left">Contact</h3>
-- Email: **shubhamatkal333@gmail.com**
+- Email: shubhamatkal333@gmail.com
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
