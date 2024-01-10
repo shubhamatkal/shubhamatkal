@@ -1,5 +1,5 @@
  **Contact:**
- - **Email:** [shubhamatkal333@gmail.com](mailto:shubhamatkal333@gmail.com)
+ - **Email:** [shubhamatkal@gmail.com](mailto:shubhamatkal@gmail.com)
 - **Phone:** [+917219357419](https://wa.me/917219357419)
 
 
